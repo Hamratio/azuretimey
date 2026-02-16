@@ -1,10 +1,12 @@
-<a href="https://www.tumblr.com/destinyfaces/746888971157635072/made-in-photoshop-cc-results-may-be-slightly?source=share">PSD CREDITS</a>
+
 <p align="center">
   <img src="https://files.catbox.moe/qtbs0l.png"><br>
   <img src="https://files.catbox.moe/6cclrr.gif">
 </p>
 
 <p align="center">
+  <img src="https://i.postimg.cc/SKrB0Dbn/image-2024-05-23-223823349.png"<br>
+    <br>
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Quintessential&size=30&duration=4980&pause=1000&color=000000&center=true&vCenter=true&width=435&lines=%22Words%2C+words%2C+words.%22" alt="Typing SVG" /></a><br>
   <img src="https://files.catbox.moe/tui0mj.png"<br>
 </p>
