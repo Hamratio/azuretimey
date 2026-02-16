@@ -19,6 +19,6 @@
 <p align="center">
 always iwec unless close<br>
   my beautiful partner<a href="https://github.com/GHOSTBUSTERS-SFX">@GHOSTBUSTERS-SFX</a><br>
-  <a href="https://fluffle.cc/bloxburg">fluffle.cc</a> <a href="https://pronouns.cc/@frostbyte">pronouns.cc<br>
+  <a href="https://fluffle.cc/bloxburg">fluffle.cc</a> <a href="https://shakespeare.atabook.org/">atabook<br>
   <img src="https://files.catbox.moe/qtbs0l.png">
 </p>
