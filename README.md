@@ -1,7 +1,7 @@
 <a href="https://www.tumblr.com/destinyfaces/746888971157635072/made-in-photoshop-cc-results-may-be-slightly?source=share">PSD CREDITS</a>
 <p align="center">
-  <img src="https://files.catbox.moe/dodz1x.png">
-  <img src="https://github.com/user-attachments/assets/e70f2424-534c-43eb-b1b3-46f79e265588">
+  <img src="https://files.catbox.moe/tui0mj.png"><br>
+  <img src="https://files.catbox.moe/6cclrr.gif">
 </p>
 
 <p align="center">
